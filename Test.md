@@ -18,3 +18,9 @@ Forget the rest, let them know my Hell
 Kept respect up, the best, they fell  
 Let the rest be the tale they tell  
 That I was there, sayin'  
+
+[Chorus: Chester Bennington]
+In these promises broken, deep below
+Each word gets lost in the echo
+So one last lie I can see through
+This time, I finally let you go, go, go
